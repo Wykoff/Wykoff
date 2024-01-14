@@ -5,5 +5,5 @@ Eager to learn and actively engaged in developing decentralized applications (DA
 
 My Discord account - alexiswykoff
 
-Glad to meet with new people with same goals 
+Glad to meet with new people with same goals !
 
